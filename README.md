@@ -1,0 +1,1 @@
+# batuhanatakisi.github.io
